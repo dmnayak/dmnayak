@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Anchal
+- 👀 I’m interested in watching anime.
+- 🌱 I’m currently learning korean reciepes.
+- 💞️ I’m looking to collaborate on BTS.
+- 📫 How to reach me come to Japan.
