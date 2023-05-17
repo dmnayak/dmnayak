@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Anchal
+- 👋 Hi, I’m Anchal Nayak
 - 👀 I’m interested in watching anime.
 - 🌱 I’m currently learning korean reciepes.
 - 💞️ I’m looking to collaborate on BTS.
